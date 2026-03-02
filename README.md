@@ -1,1 +1,1 @@
-# my-new-portfolio
+# my-new-portfolioC:\Users\Lenovo\OneDrive\Desktop\Portfolio\index.htmlC:\Users\Lenovo\OneDrive\Desktop\Portfolio\style.cssC:\Users\Lenovo\OneDrive\Desktop\Portfolio\Capture.PNGC:\Users\Lenovo\OneDrive\Desktop\Portfolio\ds.jpegC:\Users\Lenovo\OneDrive\Desktop\Portfolio\newb.C:\Users\Lenovo\OneDrive\Desktop\Portfolio\Project_Video - .mp4jpegC:\Users\Lenovo\OneDrive\Desktop\Portfolio\np.jpegC:\Users\Lenovo\OneDrive\Desktop\Portfolio\Poojani Botheju-CV.pdfC:\Users\Lenovo\OneDrive\Desktop\Portfolio\ui.mp4
